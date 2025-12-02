@@ -1,4 +1,4 @@
-
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Kosugi&pause=1000&color=AEAEAE&width=435&lines=I+wonder+what+clothes+you+wear+to+school)](https://git.io/typing-svg)
 
 
 #1 jonathan fan
