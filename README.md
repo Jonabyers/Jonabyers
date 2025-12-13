@@ -37,7 +37,7 @@ biggest jonathan  / stonathan fan
  <!-- INT -->
    <br>
 <p align="center">
-<ins><b><em>INT</em></b></ins>  stranger things Mr robot queen the monkees sam and colby the beatles house MD The Pacific metalocalypse twin peaks scream pnd, metallica star trek
+<ins><b><em>INT</em></b></ins>  stranger things, Mr robot, TWD, the beatles, teen wolf, The Pacific Sam and colby metalocalypse twin peaks scream, pnd, Spree , IT 2017 / wtd, metallica star trek
  
   <a href="https://imgbb.com/"><img src="https://i.ibb.co/G3PWXqvy/IMG-4707-1.png" alt="IMG 4707 (1)" border="0"></a>
      
